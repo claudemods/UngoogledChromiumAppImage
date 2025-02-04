@@ -8,7 +8,6 @@ Buy me a 🍕🥧 https://www.paypal.com/paypalme/claudemods?country.x=GB&locale
 download
 
 
+![2025-02-04-050736_hyprshot](https://github.com/user-attachments/assets/0e59c52a-c93c-4b22-b015-d946f7fee8cf)
 
-
-![2025-02-04-045601_hyprshot](https://github.com/user-attachments/assets/7dd89935-b21b-4031-80d1-25c92d71598d)
 
